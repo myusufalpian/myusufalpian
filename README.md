@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **llawliet1945@gmail.com**
 
-- 📄 Know about my experiences [https://linkedin.com/myusufalpian](https://linkedin.com/myusufalpian)
+- 📄 Know about my experiences [https://linkedin.com/in/myusufalpian](https://linkedin.com/in/myusufalpian)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
